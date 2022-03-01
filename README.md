@@ -1,0 +1,2 @@
+# hayalettigim-bu-degildi
+manifesto
