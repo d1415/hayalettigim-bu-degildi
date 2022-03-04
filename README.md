@@ -1,3 +1,4 @@
 # hayalettigim-bu-degildi
-manifesto
-başlamadım yazmaya :D 
+Silahları buldum 
+Hepsini öldürdüm :D
+Müziği dinle
