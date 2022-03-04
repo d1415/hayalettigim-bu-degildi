@@ -3,7 +3,7 @@ Sanayi Devrimi ve sonuçları insan soyu için bir felaket oldu. Bu sonuçlar, �
 bizlerin yaşamdan beklentilerimizi olduk-ça arttırırken toplumun denge sini bozdu, yaşamı anlamsızlaş-
 tırdı, insanları aşağılamalara maruz bıraktı, yaygın psikolojik acılara (Üçüncü Dünya’da fiziksel acılara
 da) yol açtı ve doğal dünyayı şiddetli zararlara uğrattı. Teknolojik ilerleyişin devamı durumu daha da
-kötüleştirecek; insanları daha büyük aşağılamalara maruz bırakıp, doğal yaşamda daha fazla zarara
+kötüleştirecek; insanları daha büyük aşağılamalara maruz bırakıp, doğal yaşamda daha fazla zarara			
 sebep olacak; büyük olasılıkla daha fazla sosyal bozulmaya ve psikolojik acılara yol açacak; belki de
 “gelişmiş” ülkelerde bile fiziksel acıların artmasına neden olacak.
 2. Endüstriyel-teknolojik sistem devam edebilir veya yıkılabilir. Eğer devam ederse, sonunda psikolojik
